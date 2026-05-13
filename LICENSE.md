@@ -1,4 +1,4 @@
-# 
+# Get the ultimate nft flip bot with ultimate nft flip bot | wash-trading-detection + snipe-list-management. Featuring wash-trading-detection and snipe-list-management, it's the
 
 
 
